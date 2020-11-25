@@ -1,1 +1,1 @@
-# comunica-o-gamer-server-do-discord
+me de sugestão de coisas
